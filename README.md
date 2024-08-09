@@ -2,13 +2,7 @@
 
 17/04/2008👻
 
-tenho namorado👩‍❤️‍💋‍👨
-
 amo a cor roxa 💜
-
-bipolar💘
-
-adoro pizza 🍕
 
 cura é um processo diario!🥀
 
